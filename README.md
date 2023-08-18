@@ -37,3 +37,8 @@ Belajar kelas Memulai Pemrograman dengan Java. (Progres 100%)
   * Upacara kemerdekaan indonesia
   * pelepasan kontingen spirit
   * makan naspad
+  * turu
+  * maen ps ufc, kalah ama bot
+  * ohc
+  * latian basket
+  * tepar
